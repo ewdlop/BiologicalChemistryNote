@@ -12,7 +12,7 @@ Sperm is a living thing; our larvae; Man passively kills animals and larvae.
 
 This blows. Meats has protein.
 
-[Fertilization in Frog]<https://www.youtube.com/watch?v=VXgG_Lgnlqc>
+[Fertilization in Frog](https://www.youtube.com/watch?v=VXgG_Lgnlqc)
 
 Chinese call bubble tea bubbles(tapioca pearl): 青蛙(frog)下蛋. 
 
