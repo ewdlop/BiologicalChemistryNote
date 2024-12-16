@@ -8,7 +8,7 @@ Chinese call Corpus spongiosum Chicks(tiny chicken, 小雞雞)
 
 Indirana beddomii "tadpole"
 
-Sperm is a living thing; our larvae; Man passively kills animals and larvae.
+Sperm is a living thing; our larvae; Man passively kills animals and larvae; Man kindly support aniamls and larve.
 
 This blows. Meats has protein.
 
