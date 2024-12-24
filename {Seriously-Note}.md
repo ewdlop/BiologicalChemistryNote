@@ -1,3 +1,5 @@
+"SERIOUSLY"
+
 Chickens taste like frogs
 
 How do you know if they put chicken in the frogs
